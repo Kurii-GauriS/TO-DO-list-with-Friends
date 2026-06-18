@@ -1,7 +1,7 @@
-# TO-DO-list-with-Friends
+# TO-DO-list-with-Friends♡♡♡♡♡
 <br></h1>
 Staycation-bucket<br></h1>
-<h1>⸜(｡˃ ᵕ ˂ )⸝♡</h1>
+<h1>♡⸜(｡˃ ᵕ ˂ )⸝♡</h1>
 <br>
 <h3>
 I love spending time with my friends, trying new things, and making the most of every moment.</h3>
