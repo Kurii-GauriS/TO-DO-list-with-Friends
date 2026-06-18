@@ -1,4 +1,4 @@
-# TO-DO-list-with-Friends♡♡♡♡
+# TO-DO-list-with-Friends
 <br></h1>
 Staycation-bucket<br></h1>
 <h1>♡⸜(｡˃ ᵕ ˂ )⸝♡</h1>
